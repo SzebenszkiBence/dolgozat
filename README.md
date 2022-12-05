@@ -1,1 +1,2 @@
-# dolgozat
+# dolgozatű
+Szebenszki Bence (bajnok)
